@@ -1,4 +1,4 @@
-### Hey, honey! I'm Paulo👋
+### Hey, I'm Paulo! 👋
 
 
 - 🌱 I’m currently learning HTML5, CSS, JavaScript, MySQL and PHP.
