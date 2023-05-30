@@ -6,6 +6,5 @@
 - 📫 Reach me on: 
 - ✉️ E-mail: plpaulo25affonso@outlook.com.br
 - 🤖 Discord: Paulo Affonso#4161
-- 
 - 😄 Pronouns: he/him
 
